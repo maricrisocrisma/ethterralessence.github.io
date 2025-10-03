@@ -1,1 +1,1 @@
-# etheralessence.github.io
+# etherallessence.github.io
